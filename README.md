@@ -7,7 +7,7 @@
 ✦ Gosto do Law
 
 
-![](https://i.pinimg.com/originals/14/db/ab/14dbab0d7ba16735863dff0a7002b455.gif)
+![](https://media.tenor.com/sbfBfp3FeY8AAAAj/oia-uia.gif)
 
 # super relevante!!
 
